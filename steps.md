@@ -8,5 +8,5 @@
 - Enfourner pour 10 minutes de cuisson.
 - Pour former les cookies, utiliser 2 cuillères à soupe et faire des petitstas espacés pour la cuisson.
 - Enfourner pour 10 minutes de cuisson.
+Dresser les cookies dans un plat
 Bon Apétit !
-2c68ccaea1353825709cf14d6f43539730d9cc19
