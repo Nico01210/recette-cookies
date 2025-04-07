@@ -1,6 +1,4 @@
-HEAD
-Différentes Notes prises sur les commandes Github pour s'en rappeler plus tard
-lol
-
 # recette-cookies
-c44054f (added README)
+La recette culinaire des cookies
+une recette gourmande :p
+2c68ccaea1353825709cf14d6f43539730d9cc19

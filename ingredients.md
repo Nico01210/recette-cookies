@@ -6,3 +6,12 @@
 - 1 cuillère à soupe d’huile
 - 1 pincée de sel
 - 1 sachet de levure chimique
+- 85 g de beurre mou
+- 1œuf
+- 85g de sucre
+- 1 sachet de sucre vanillé
+- 150g de farine
+- 100g de chocolat noir
+- 1 cuillère à café de sel
+- 1 cuillère à café de levure chimique
+2c68ccaea1353825709cf14d6f43539730d9cc19
